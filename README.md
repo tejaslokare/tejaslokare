@@ -85,4 +85,4 @@
 
 ---
 
-> 🔥 Made with ❤️ by name – Keep Learning, Keep Coding!
+> 🔥 Made with ❤️ tejas lokare – Keep Learning, Keep Coding!
